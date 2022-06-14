@@ -1,6 +1,6 @@
 Scriitor reprezentativ pentru simbolism, George Bacovia aduce prin opera sa o contributie definitorie pentru estetica acestei manifestari literare in spatiul romanesc. Viziunea sa artistica despre lume se construieste pe fundamentele unui mod aparte de a interpreta existena in datele ei esentiale.
 
-Simbolismul, curent artistic aparut in ultimile doua decenii ale secolului al 19-lea in Franta, se impune prin manifestul lui Jean Morreas intitulat "Le Symbolisme" ca reactie impotriva parnasianismului si a naturalismului. Numele simbolizeaza gasirea de corespondente intre obiecte poetice, sentimente cu ajutorul simbolurilor
+Simbolismul, curent artistic aparut in ultimile doua decenii ale secolului al 19-lea in Franta, se impune prin manifestul lui Jean Moréas intitulat "Le Symbolisme" ca reactie impotriva parnasianismului si a naturalismului. Numele simbolizeaza gasirea de corespondente intre obiecte poetice, sentimente cu ajutorul simbolurilor
 
 Poezia "Plumb" a lui George Bacovia aparuta in anul 1916, deschide volumul cu acelasi titlu,si este una dintre cele mai reprezentative opere pentru simbolism, motivul solitudinii apasatoare fiind elementul recurent. Poezia utilizeaza elemente specifice precum folosirea simbolurilor, valorificarea cromaticii, tehnica sugestiei si principiul corespondentelor. Specific liricii bacoviene poezia este dominata de sentimentele de spleen si angoasa, eul liric aflandu-se in ipostaza insinguratului.
 
